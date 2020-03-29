@@ -1,2 +1,2 @@
-# agatocka
+# agatochka
 My lovely shop
